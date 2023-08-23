@@ -1,1 +1,6 @@
-# Resume_Cover_Letter_Ihsan_Saleheen
+Dear Sir,
+I have attached my cover letter and resume in pdf format. Please view the file.
+Wish you all the best.
+
+Regards, 
+Ihsan Saleheen
